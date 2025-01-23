@@ -4,6 +4,8 @@
 
 [DESTROY - Military Motivation](https://www.youtube.com/watch?v=xxZ0Dvf4oVk)
 
+[Why issuing fake certificates with high scores that do not reflect the real life, mother fuckers !!!??](https://www.youtube.com/watch?v=0A-NIeUcKDE)
+
 ***
 
 **`Difficulty Level`**: [Research and development center 🌏 🌎 🌍](https://en.wikipedia.org/wiki/Research_and_development) that belongs to a [university](https://en.wikipedia.org/wiki/University).
